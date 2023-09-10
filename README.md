@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @BailzOnYT
+- 👀 I’m interested in technology, computers, games, Roblox, YouTube, Among Us, block coding, live streaming and video editing.
+- 🌱 I’m currently learning a lot of stuff
+- 📫 To email me just use this email: Bailey.sheather1+github@gmail.com
