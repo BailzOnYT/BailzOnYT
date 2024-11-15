@@ -1,4 +1,5 @@
 - 👋 Hi, I’m @BailzOnYT
-- 👀 I’m interested in technology, computers, games, Roblox, YouTube, Among Us, block coding, live streaming and video editing.
+- 👀 I’m interested in technology, computers, games, live streaming and video editing.
+- 💾 I know a little bit of everything, HTML, CSS, tiny bit of Python and JavaScript, I am best with Scratch Blocks 3.0 (SB3) or PenguinMod Projects (PMP)
 - 🌱 I’m currently learning a lot of stuff
 - 📫 To email me just use this email: Bailey.sheather1+github@gmail.com
